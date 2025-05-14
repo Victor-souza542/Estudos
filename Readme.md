@@ -7,7 +7,7 @@
 
 ## Suas Decisões são apenas suas
 
-Playlist - https://www.youtube.com/watch?v=D3L8IOncLkg&list=PLurdM2AvR_mh_STNEvcR-oJk7LQU62izY
+- [Playlist](https://www.youtube.com/watch?v=D3L8IOncLkg&list=PLurdM2AvR_mh_STNEvcR-oJk7LQU62izY)
 
 
 ## Livros
